@@ -1,1 +1,1 @@
-a public page with into about Eucaristia
+a public page with intro about Eucaristia
